@@ -1,2 +1,2 @@
-# Nothing
+# No Shinchoku
 Yeah!!!!!!!
